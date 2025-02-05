@@ -26,8 +26,7 @@ Technology:
 
 
 
-![image](https://github.com/user-attachments/assets/7c161651-671a-414f-9257-351946a4bb7b)
-
+![image translated](https://github.com/user-attachments/assets/4d93b2a4-39ac-44a7-ac40-4f3314062b19)
 
 ![image](https://github.com/user-attachments/assets/71bfa6d4-56c2-4b90-ba64-f56c8c02c962)
 
